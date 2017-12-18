@@ -1,3 +1,14 @@
+![](pagina-86-foto-1.jpg)
+## mejores canciones para mirar atras  daniel andreas
+
+* NICO • THESE DAYS
+* LOU REED • WAGON WHEEL
+* KEANE • SOMEWHERE ONLY WE KNOW
+* THE TURTLES • HAPPY TOGETHER
+* RADIOHEAD • CREEP
+* THE MODERN LOVERS • OLD WORLD
+* THE CURE • PRIMARY
+
 ![](pagina-1-foto-1.jpg)
 ## mejores canciones para romper la discoteca  paz martinez
 
