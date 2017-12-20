@@ -1,3 +1,17 @@
+
+![](pagina-87-foto-1.jpg)
+## mejores canciones para ver la luz al final del tunel
+
+* GLORIA GAYNOR • I WILL SURVIVE
+* QUEEN • I WANT TO BREAK FREE
+* GEORGE HARRISON • ALL THINGS MUST PASS
+* BOB MARLEY • NO WOMAN, NO CRY
+* BOB DYLAN • THE TIMES THEY ARE A' CHANGING
+* BECK • THE GOLDEN AGE
+* BLUR • THE UNIVERSAL
+
+---
+
 ![](pagina-86-foto-1.jpg)
 ## mejores canciones para mirar atras  daniel andreas
 
@@ -8,6 +22,8 @@
 * RADIOHEAD • CREEP
 * THE MODERN LOVERS • OLD WORLD
 * THE CURE • PRIMARY
+
+---
 
 ![](pagina-1-foto-1.jpg)
 ## mejores canciones para romper la discoteca  paz martinez
