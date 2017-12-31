@@ -1,4 +1,41 @@
 
+![](fin.jpg)
+## mejores canciones para cerrar una radio
+
+* ALAN PARSON PROJECT • TIME
+* THE BEATLES • HELLO GOODBYE
+* ELTON JOHN • GOODBYE YELLOW BRICK ROAD
+* NINO BRAVO • UN BESO Y UNA FLOR
+* JEFF BUCKLEY • LAST GOODBYE
+* TOTO • AFRICA
+* THE DOORS • THE END
+
+---
+![](cambio-vital.jpg)
+## mejores canciones para un cambio vital  natalia romero
+
+* BLIND MELON • CHANGE
+* BLACK SABBATH • CHANGES
+* DAVID BOWIE • CHANGES
+* FAUL & WAD AD VS. PNAUD • CHANGES
+* SHERYL CROW • A CHANGE WOULD DO YOU GOOD
+* SAM COOKE • A CHANGE IS GONNA COME
+* TAME IMPALA • YES I'M CHANGING
+
+---
+![](reno.jpg)
+## mejores canciones 7 mejores canciones para montar un reno
+
+* THE SHINS • WONDERFUL CHRISTMAS TIME
+* THE RAMONES • I DON´T WANNA FIGHT TONIGHT
+* BING CROSBY • WHITE CHRISTMAS
+* YEAH YEAH YEAHS • ALL I WANT FOR CHRISTMAS
+* TWISTED SISTER • TWISTED CHRISTMAS
+* VINCE GUARALDI TRIO • CHRISTMAS TIME IS HERE
+* FRANK SINATRA • A MERRY LITTLE CHRISTMAS
+
+---
+
 ![](pagina-87-foto-1.jpg)
 ## mejores canciones para ver la luz al final del tunel
 
